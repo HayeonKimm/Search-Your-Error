@@ -4,4 +4,6 @@
 
 같이 에러들을 모으실 에러 수집가들을 모집합니다
 
-문의 - hayeon.data@gmail.com
+모집문의 
+
+김하연: hayeon.data@gmail.com
